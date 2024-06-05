@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @aosthedev
+- 👀 I’m interested in roblox exploits
+- 🌱 I’m currently learning lua
+- 📫 How to reach me: i forgot smth
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: idk
